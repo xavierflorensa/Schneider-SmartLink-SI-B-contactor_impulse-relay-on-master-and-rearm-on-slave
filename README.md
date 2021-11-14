@@ -6,6 +6,8 @@ Connect your Smartlink to your router and also connect the Edge Box to your rout
 As you can see on these videos
 
 https://www.youtube.com/watch?v=cMTJCQq2miA
+https://www.youtube.com/watch?v=yXAbNdjYt70
+
 
 
 
